@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on my personal project<br>🌱 I’m currently learning web development<br>💬 Ask me about technical doubt<br>⚡ i'm introvert
+🔭 I’m currently working on my personal project<br>🌱 I’m currently learning web development<br>💬 Ask me about technical doubt<br>Contact me:-naitikprajapti383@gmail.com
 
 
 ## 🌐 Socials:
